@@ -1,4 +1,4 @@
-
+auto king legacy Scripts | auto-farm + inf-beli is your go-to resource for king legacy domination. Featuring auto-farm and inf-beli, our scripts are engineered to maximize your efficiency and enjoyment. Say goodbye to tedious grinding and hello to effortless victories.
 
 
 ---
